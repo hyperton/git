@@ -7,4 +7,4 @@
 ***
 *信息工程学院*
 [hyperlink](www.njit.edu.cn)
-![picture](http://pan.baidu.com/s/1hrfBMQw)
+![picture](http://i4.tietuku.com/296299109e03a618.png)
